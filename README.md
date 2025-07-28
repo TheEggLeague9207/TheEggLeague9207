@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @TheEggLeague9207
-- 👀 I'm a Minecraft addict, also likes to play Smash Ultimate and MK8D
+- 👀 Plays random games.
 - 🌱 I’m currently learning... something?
 - 💞️ I’m looking to collaborate on nothing.
-- 📫 Discord is KingEggDedede#2743
+- 📫 Discord is theeggleague2743
 
 <!---
 TheEggLeague9207/TheEggLeague9207 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
